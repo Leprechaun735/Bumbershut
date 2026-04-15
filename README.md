@@ -19,4 +19,4 @@ Won Purdue Polytec Design and Innovation People's Choice Award resulting in a $5
 
 <img width="4032" height="3024" alt="IMG_3394" src="https://github.com/user-attachments/assets/5c97f589-941f-4e1f-92c8-93ced05ba24f" />
 
-<img width="3024" height="4032" alt="IMG_3274" src="https://github.com/user-attachments/assets/1c22b6bd-130b-4305-ba5c-a73e96eb528d" />
+
